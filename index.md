@@ -23,3 +23,7 @@ This was the first time I was hit with an upsetting loss. I lost to one of the k
 **Age 9** 
 
 At age 9 I received my first offical chess rating of 600 and I started playing for my school at chess tournaments. 
+
+**Age 10**
+
+At age 10 my rating jumped to 1000 this is when I began to improve at a rapid pace. This is around the first time I attended the state finals.
