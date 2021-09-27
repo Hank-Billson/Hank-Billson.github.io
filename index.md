@@ -27,3 +27,15 @@ At age 9 I received my first offical chess rating of 600 and I started playing f
 **Age 10**
 
 At age 10 my rating jumped to 1000 this is when I began to improve at a rapid pace. This is around the first time I attended the state finals.
+
+**Age 11**
+
+At age 11 I was around 1300 rating and I attended the national finals of Australia and I came 3rd for year 1-6 ( School Grade ). That was a pretty big deal for me and around this time I was beginning to receive coaching from a F.M Fide master.
+
+**Age 12** 
+
+At age 12 nothing happend and I was even thinking about quiting chess since I was making no progress howvever, I went on. 
+
+**Age 13** 
+
+At age 13 I beat my first Grandmaster Julia Ryjanova the postion was an equal end game with bishops and pawns however she ran out of time. My rating at this time is around 2000 and Beating masters become a common thing for me to do.
