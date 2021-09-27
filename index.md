@@ -38,4 +38,4 @@ At age 12 nothing happend and I was even thinking about quiting chess since I wa
 
 **Age 13** 
 
-At age 13 I beat my first Grandmaster Julia Ryjanova the postion was an equal end game with bishops and pawns however she ran out of time. My rating at this time is around 2000 and Beating masters become a common thing for me to do.
+At age 13 I beat my first Grandmaster Julia Ryjanova the postion was an equal end game with bishops and pawns however she ran out of time. My rating at this time is around 2000 and Beating masters become a common thing for me to do.  
