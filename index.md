@@ -6,4 +6,4 @@ At age 4 my father introduced me to chess, I was just learning the basics of che
 
 **Age 5** 
 
-When 
+When I was 5 I still played chess with my father however, I was beginning to stand a chance to my father every now and then I would beat him. I still played chess for fun nothing serious. I still didn't have a chess rating but I would say I played like a 400 since I was seeing more hanging peices on the board. 
