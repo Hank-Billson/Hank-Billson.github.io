@@ -16,10 +16,10 @@ At this age it was the first time that I would compete in a chess tournament in 
 
 At 7 I think it was the age when everything clicked, I started to get coaching at my russian school. And I won my first tournament againist my chess class, I was awarded my first medal. To this day I still have that medal and I treasure it to this day. My rating at the time was around 500 since I was beginning to play normal openings like four knights and the ruy lopez. 
 
-** Age 8**
+**Age 8**
 
 This was the first time I was hit with an upsetting loss. I lost to one of the kids at the chess class and that caused me to get 2nd place. My rating was 550 at the time.
 
-** Age 9** 
+**Age 9** 
 
 At age 9 I received my first offical chess rating of 600 and I started playing for my school at chess tournaments. 
