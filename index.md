@@ -1,4 +1,4 @@
-# H1 Things like a boss Max does 
+#  Things Max Kurian does 
 
 Hello everyone 👋
 
